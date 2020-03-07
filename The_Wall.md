@@ -17,14 +17,14 @@ edged the top of the wall with sharp stones, they didn't even seem to
 notice.
 
 One day one of them vaulted over the wall and stood right inside. This 
-*really* made me angry so I decided to build the wall higher. As I 
+**really** made me angry so I decided to build the wall higher. As I 
 continued to build, I became more and more self-sufficient and soon, no 
 one could see in or out.
 
 But then I realized that no one had stopped by to talk for some time. 
 Some walked by not seeming to notice me or my wall. Others stood sadly 
 by and watched me build. I thought, "They're really jealous of my wall," 
-and I *resented* them...all of them.
+and I **resented** them...all of them.
 
 Some of my stones were so dear to me that I polished them carefully 
 several times a day.
@@ -37,7 +37,7 @@ be heard.
 
 One day, someone yelled from the other side, "Your wall is ugly! It is 
 twisted and gray and all out of shape!" Now, I didn't want to hear this. 
-I *liked* my wall. In fact, some of the stones from which I had built it 
+I **liked** my wall. In fact, some of the stones from which I had built it 
 were very dear to me.
 
 It was the day the flower fell at my feet that I began to cry. I ran to 
@@ -57,8 +57,8 @@ wall and that God had waited patiently for me to see it was really a
 selfish waste of time.
 
 Finally, it occurred to me that the Divine Creator could tell me why my 
-wall was so ugly. It was when I began *to ask*, that God then began *to 
-teach* me. God gave the stones names: "This stone is 'jealousy.' You 
+wall was so ugly. It was when I began **to ask**, that God then began **to 
+teach** me. God gave the stones names: "This stone is 'jealousy.' You 
 must remove it."
 
 Sometimes I would protest. This was one of my favorite stones! It was 
